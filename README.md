@@ -66,51 +66,5 @@ I do not know how to get this to show up on my profile so its now just a stamp c
 ![image](https://github.com/user-attachments/assets/9b0b9854-cee1-4f17-8dc6-c9e44f1e5168) ![image](https://github.com/user-attachments/assets/85c6d429-7fce-437d-ab9e-58a06175ab71)
 ![image](https://github.com/user-attachments/assets/48e7802d-a856-467a-aa53-72633f7943af) ![image](https://github.com/user-attachments/assets/f54d8414-0db3-4d07-aca7-73b41bb05ed2)
 ![image](https://github.com/user-attachments/assets/90fc0a1f-2563-451b-b38c-4d5fec487d48) ![image](https://github.com/user-attachments/assets/8ec65d9d-ceae-4740-8d4d-75640cd3df67)
-![image](https://github.com/user-attachments/assets/05abc0fe-97c4-43d0-bafc-a6c7eeccbb2b) 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+![image](https://github.com/user-attachments/assets/05abc0fe-97c4-43d0-bafc-a6c7eeccbb2b)  
 
