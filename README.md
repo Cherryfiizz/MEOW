@@ -1,4 +1,8 @@
 # Tropicana
+![image](https://github.com/user-attachments/assets/72889564-7f21-4e56-b2b8-beb85e4815f2) ![image](https://github.com/user-attachments/assets/1e27f15f-757e-47bf-aebc-34b9758c7bd6)
+I do not know how to get this to show up on my profile so its now just a stamp collcection 
+
+
 ![](https://komarev.com/ghpvc/?username=cherryfiizz)
 
 
